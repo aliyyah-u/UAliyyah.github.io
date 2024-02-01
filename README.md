@@ -1,2 +1,2 @@
-# UAliyyah.github.io
+# aliyyah-u.github.io
 Aliyyah Uddin
